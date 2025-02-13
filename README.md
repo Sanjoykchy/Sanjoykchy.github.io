@@ -6,7 +6,8 @@
 
 Dr. Sanjoy Chowdhury is a cardiologist and cardiac electrophysiologist working at the National Health Service (NHS) UK.
 
-He was trained in renowned teaching hospitals in the UK and Canada, alongside completing cardiology certification in the UK and triple certifications in cardiac electrophysiology in the UK, Europe and North America. 
+He was trained in renowned teaching hospitals in the UK and Canada. 
+He completed three cardiac electrophysiology certifications in the UK, Europe and North America. 
 
 He was awarded PhD from the University of Manchester for his research looking at mechanism underlying cardiac rhythm disorders. More information available in [linkedin™](https://www.linkedin.com/in/sanjoykumar/).
 
