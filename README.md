@@ -1,5 +1,5 @@
 # Dr. Sanjoy Chowdhury 
-#### MBBS, MRCP(UK), CCT, CCDS, CEPS-A, ECES, PhD
+#### MBBS, MRCP(UK), CCDS, CEPS-A, ECES, PhD
 ## Consultant Cardiologist and Cardiac Electrophysiologist
 
 
