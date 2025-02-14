@@ -4,7 +4,7 @@
 
 
 
-Dr. Sanjoy Chowdhury is a NHS consultant cardiologist and cardiac electrophysiologist working at the Lancashire Cardiac Centre, UK.
+Dr. Sanjoy Chowdhury is a [national-award-winning](https://oruen-cardiology.com/uncategorized/national-award-for-local-hospital-for-heart-rhythm-disorder-that-affects-millions) NHS consultant cardiologist and cardiac electrophysiologist working at the Lancashire Cardiac Centre, UK.
 
 Trained in the UK and Canada, he is triple certified in invasive cardiac electrophysiology across the UK, [Europe](https://www.escardio.org/Education/Career-Development/Certification/certified-healthcare-professionals-in-heart-rhythm) and [North America](https://ibhre.org/physicians/ceps-exam/physician-certified-electrophysiology-specialist-ceps-recipients). 
 He was awarded PhD from the University of Manchester for his research on cardiac rhythm disorders mechanism.
