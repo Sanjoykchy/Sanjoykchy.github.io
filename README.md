@@ -10,6 +10,6 @@ Trained in the UK and Canada, he is triple certified in invasive cardiac electro
 He was awarded PhD from the University of Manchester for his research on [heart rhythm disorder mechanism](https://goo.gl/jZLQlO).
 More information available in [linkedin™](https://www.linkedin.com/in/sanjoykumar/).
 
-If you share his enthusiasm about the rhythm of life, keep an eye over this space - an exciting project is in the kitchen.
+If you share his enthusiasm about the rhythm of life, watch the space - an exciting project is in the kitchen.
 
 Meanwhile, thank you for visiting this site. 
